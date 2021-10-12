@@ -1,1 +1,1 @@
-# KaurRamesh_IshpreetMamatha_midterm
+# Hello! This is Ishpreet and Mamatha. So here we're doing a debate: Which is a better dessert? Cake or Ice cream?
